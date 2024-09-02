@@ -1,0 +1,1 @@
+Hi! This is a project about Zendaya. It uses the PBL style which is Project Based Learning. This means that the project combines 3 Subjects which is English, Science and ICT. This project is the ICT part of it. Hope you enjoy!
